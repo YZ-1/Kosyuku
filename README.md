@@ -15,4 +15,4 @@ Kosyuku人模-目前只有女体，施工中<br>
 
 一个报进度的个人群：150172184
 
-Have a nice day!
+Have a nice day!:)
